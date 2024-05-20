@@ -1,1 +1,1 @@
-Opening theory, which encompasses thousands of variations and sub-variations, is a critical aspect of modern chess strategy and preparation.
+Endgame studies, composed positions with specific objectives, are used to improve players' understanding of endgame principles and techniques.

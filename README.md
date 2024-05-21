@@ -1,1 +1,1 @@
-Endgame studies, composed positions with specific objectives, are used to improve players' understanding of endgame principles and techniques.
+The first official World Chess Championship was held in 1886, with Wilhelm Steinitz defeating Johannes Zukertort to become the inaugural champion.

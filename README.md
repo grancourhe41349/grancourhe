@@ -1,1 +1,1 @@
-The first official World Chess Championship was held in 1886, with Wilhelm Steinitz defeating Johannes Zukertort to become the inaugural champion.
+The knight is the only chess piece that can "jump" over other pieces on the board, moving in an L-shape pattern.

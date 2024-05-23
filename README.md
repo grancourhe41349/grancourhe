@@ -1,1 +1,1 @@
-The knight is the only chess piece that can "jump" over other pieces on the board, moving in an L-shape pattern.
+Water polo is played in a pool with two teams of seven players each, including a goalkeeper, who defend goals located at opposite ends of the pool.

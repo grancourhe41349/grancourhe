@@ -1,1 +1,1 @@
-Water polo is played in a pool with two teams of seven players each, including a goalkeeper, who defend goals located at opposite ends of the pool.
+Rugby sevens is a fast-paced and exciting variant of rugby union, featuring seven players per team and shorter match durations, making it a popular format for international tournaments and the Olympic Games.

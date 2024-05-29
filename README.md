@@ -1,1 +1,1 @@
-Opening theory, which encompasses thousands of variations and sub-variations, is a critical aspect of modern chess strategy and preparation.
+Fouls in water polo are common and include minor fouls like holding, pushing, and impeding an opponent, as well as major fouls like kicking or striking an opponent.

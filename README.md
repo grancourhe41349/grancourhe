@@ -1,1 +1,1 @@
-Fouls in water polo are common and include minor fouls like holding, pushing, and impeding an opponent, as well as major fouls like kicking or striking an opponent.
+The HSBC World Rugby Sevens Series is a global circuit of rugby sevens tournaments held in various cities around the world, featuring national teams competing for the series title.

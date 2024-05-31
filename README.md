@@ -1,1 +1,1 @@
-The HSBC World Rugby Sevens Series is a global circuit of rugby sevens tournaments held in various cities around the world, featuring national teams competing for the series title.
+Goals in water polo are constructed of metal frames and netting, positioned at the ends of the pool and measuring 3 meters wide and 0.9 meters high.

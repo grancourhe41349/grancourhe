@@ -1,1 +1,1 @@
-Opening theory, which encompasses thousands of variations and sub-variations, is a critical aspect of modern chess strategy and preparation.
+Chess openings are sequences of moves used to establish control of the board and develop pieces in the early stages of the game.

@@ -1,1 +1,1 @@
-Rugby jerseys often feature distinctive designs and colors representing national teams or club identities, with players wearing their team's colors with pride during matches.
+The haka is a traditional Maori war dance performed by the New Zealand All Blacks before their rugby matches, symbolizing strength, unity, and challenge to their opponents.

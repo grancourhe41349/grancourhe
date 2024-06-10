@@ -1,1 +1,1 @@
-The word "checkmate" comes from the Persian phrase "shāh māt," which means "the king is helpless" or "the king is dead."
+Players who commit fouls may receive penalties, such as exclusion from the game for a set period (typically 20 seconds) or a penalty shot awarded to the opposing team.

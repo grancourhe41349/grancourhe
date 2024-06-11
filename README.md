@@ -1,1 +1,1 @@
-Players who commit fouls may receive penalties, such as exclusion from the game for a set period (typically 20 seconds) or a penalty shot awarded to the opposing team.
+Websites and mobile apps like Chess.com, Lichess, and the Internet Chess Club (ICC) provide features such as live games, puzzles, and video lessons, enhancing the accessibility and popularity of chess worldwide.

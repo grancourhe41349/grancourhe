@@ -1,1 +1,1 @@
-Websites and mobile apps like Chess.com, Lichess, and the Internet Chess Club (ICC) provide features such as live games, puzzles, and video lessons, enhancing the accessibility and popularity of chess worldwide.
+Opening theory, which encompasses thousands of variations and sub-variations, is a critical aspect of modern chess strategy and preparation.

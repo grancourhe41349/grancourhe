@@ -1,1 +1,1 @@
-The first official World Chess Championship was held in 1886, with Wilhelm Steinitz defeating Johannes Zukertort to become the inaugural champion.
+Chess originated in ancient India around the 6th century AD, evolving from earlier Indian board games like chaturanga.

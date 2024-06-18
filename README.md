@@ -1,1 +1,1 @@
-The first official World Chess Championship was held in 1886, with Wilhelm Steinitz defeating Johannes Zukertort to become the inaugural champion.
+Water polo players wear swim caps and numbered caps to identify their team, with goalkeepers wearing caps of a different color to distinguish their role.

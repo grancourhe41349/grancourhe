@@ -1,1 +1,1 @@
-Club competitions, such as the LEN Champions League and the Euro League, provide opportunities for professional water polo players to compete at the highest level in Europe and beyond.
+The first official World Chess Championship was held in 1886, with Wilhelm Steinitz defeating Johannes Zukertort to become the inaugural champion.

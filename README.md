@@ -1,1 +1,1 @@
-Rugby jerseys often feature distinctive designs and colors representing national teams or club identities, with players wearing their team's colors with pride during matches.
+Water polo is played in a pool with two teams of seven players each, including a goalkeeper, who defend goals located at opposite ends of the pool.

@@ -1,1 +1,1 @@
-A grandmaster (GM) is the highest title awarded by FIDE to chess players, recognizing their exceptional skill and performance in competitive chess.
+Famous chess games, such as the Immortal Game and the Evergreen Game, are celebrated for their strategic brilliance and innovative tactics.

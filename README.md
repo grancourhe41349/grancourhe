@@ -1,1 +1,1 @@
-Famous chess games, such as the Immortal Game and the Evergreen Game, are celebrated for their strategic brilliance and innovative tactics.
+Moves are recorded by indicating the starting and ending squares of the moving piece, with additional symbols for captures, checks, and other game annotations.

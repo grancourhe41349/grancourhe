@@ -1,1 +1,1 @@
-Water polo made its Olympic debut at the 1900 Summer Olympics in Paris, with Great Britain winning the gold medal.
+Common endgame concepts include king activity, pawn promotion, and the opposition, which can determine the outcome of the game in a close contest.

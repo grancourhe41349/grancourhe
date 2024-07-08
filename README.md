@@ -1,1 +1,1 @@
-Common endgame concepts include king activity, pawn promotion, and the opposition, which can determine the outcome of the game in a close contest.
+Goals in water polo are constructed of metal frames and netting, positioned at the ends of the pool and measuring 3 meters wide and 0.9 meters high.

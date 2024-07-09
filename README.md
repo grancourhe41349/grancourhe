@@ -1,1 +1,1 @@
-Goals in water polo are constructed of metal frames and netting, positioned at the ends of the pool and measuring 3 meters wide and 0.9 meters high.
+The Six Nations Championship is an annual rugby union tournament featuring the national teams of England, France, Ireland, Italy, Scotland, and Wales, competing for the championship title.

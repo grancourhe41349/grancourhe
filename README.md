@@ -1,1 +1,1 @@
-The modern rules of water polo were established in Scotland in 1877, with the first official match taking place in London in 1885.
+Water polo is played in a pool with two teams of seven players each, including a goalkeeper, who defend goals located at opposite ends of the pool.

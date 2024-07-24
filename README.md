@@ -1,1 +1,1 @@
-Magnus Carlsen of Norway is the current world chess champion, holding the title since 2013 and widely regarded as one of the greatest chess players of all time.
+Common endgame concepts include king activity, pawn promotion, and the opposition, which can determine the outcome of the game in a close contest.

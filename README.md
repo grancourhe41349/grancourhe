@@ -1,1 +1,1 @@
-The penalty shot, taken from a designated spot in front of the goal, gives the attacking player a one-on-one opportunity to score against the goalkeeper.
+The standard chess set consists of 32 pieces, including 16 white and 16 black pieces, each with specific movements and values on the board.

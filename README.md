@@ -1,1 +1,1 @@
-The standard chess set consists of 32 pieces, including 16 white and 16 black pieces, each with specific movements and values on the board.
+Chess openings are sequences of moves used to establish control of the board and develop pieces in the early stages of the game.

@@ -1,1 +1,1 @@
-The haka is a traditional Maori war dance performed by the New Zealand All Blacks before their rugby matches, symbolizing strength, unity, and challenge to their opponents.
+Club competitions, such as the LEN Champions League and the Euro League, provide opportunities for professional water polo players to compete at the highest level in Europe and beyond.
